@@ -1,0 +1,12 @@
+---
+ID: 126
+post_title: Berichteübersicht
+author: torpedojan
+post_excerpt: ""
+layout: page
+permalink: >
+  http://fussball.torpedo-eisen.de/berichteuebersicht/
+published: true
+post_date: 2017-11-14 13:40:08
+---
+[et_pb_section admin_label="Sektion" fullwidth="on" specialty="off"][et_pb_fullwidth_slider admin_label="Vollbreiter Slider" show_arrows="on" show_pagination="on" auto="on" auto_ignore_hover="off" parallax="off" parallax_method="on" remove_inner_shadow="off" background_position="default" background_size="default" hide_content_on_mobile="off" hide_cta_on_mobile="off" show_image_video_mobile="off" custom_button="off" button_letter_spacing="0" button_use_icon="default" button_icon_placement="right" button_on_hover="on" button_letter_spacing_hover="0"] [et_pb_slide heading="Jahnwiesen" background_image="http://fussball.torpedo-eisen.de/wp-content/uploads/2017/11/img_1253_1425557154.jpg" background_position="default" background_size="default" background_color="#ffffff" use_bg_overlay="off" use_text_overlay="off" alignment="center" background_layout="dark" allow_player_pause="off" text_border_radius="3" header_font_select="default" header_font="||||" body_font_select="default" body_font="||||" custom_button="off" button_font_select="default" button_font="||||" button_use_icon="default" button_icon_placement="right" button_on_hover="on"] [/et_pb_slide][et_pb_slide heading="Logo" background_image="http://fussball.torpedo-eisen.de/wp-content/uploads/2017/11/torpedo_eisen_final.png" background_position="default" background_size="default" background_color="#ffffff" use_bg_overlay="off" use_text_overlay="off" alignment="center" background_layout="dark" allow_player_pause="off" text_border_radius="3" header_font_select="default" header_font="||||" body_font_select="default" body_font="||||" custom_button="off" button_font_select="default" button_font="||||" button_use_icon="default" button_icon_placement="right" button_on_hover="on"] [/et_pb_slide] [/et_pb_fullwidth_slider][/et_pb_section][et_pb_section admin_label="Sektion" fullwidth="off" specialty="off"][et_pb_row admin_label="Zeile"][et_pb_column type="4_4"][et_pb_blog admin_label="Blog" fullwidth="on" show_thumbnail="on" show_content="off" show_more="off" show_author="on" show_date="on" show_categories="on" show_comments="on" show_pagination="on" offset_number="0" use_overlay="off" background_layout="light" use_dropshadow="off" use_border_color="off" border_color="#ffffff" border_style="solid"] [/et_pb_blog][/et_pb_column][/et_pb_row][/et_pb_section]
