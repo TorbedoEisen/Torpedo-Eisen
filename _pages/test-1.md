@@ -1,6 +1,6 @@
 ---
 ID: 58
-post_title: test 1
+post_title: Mannschaftsvorstellung
 author: torpedophilip
 post_excerpt: ""
 layout: page
@@ -8,4 +8,8 @@ permalink: http://fussball.torpedo-eisen.de/test-1/
 published: true
 post_date: 2017-11-07 10:22:51
 ---
-[et_pb_section bb_built="1" admin_label="section"][et_pb_row admin_label="row" background_position="top_left" background_repeat="repeat" background_size="initial"][et_pb_column type="4_4"][et_pb_code][TORPEDO_KG][/et_pb_code][/et_pb_column][/et_pb_row][/et_pb_section]
+[et_pb_section bb_built="1" fullwidth="on" specialty="off"][et_pb_fullwidth_slider show_arrows="on" show_pagination="on" auto="on" auto_ignore_hover="off" parallax="off" parallax_method="on" remove_inner_shadow="off" background_position="default" background_size="default" hide_content_on_mobile="off" hide_cta_on_mobile="off" show_image_video_mobile="off" custom_button="off" button_letter_spacing="0" button_use_icon="default" button_icon_placement="right" button_on_hover="on" button_letter_spacing_hover="0"] [et_pb_slide heading="Jahnwiesen" background_image="http://fussball.torpedo-eisen.de/wp-content/uploads/2017/11/img_1253_1425557154.jpg" background_position="default" background_size="default" background_color="#ffffff" use_bg_overlay="off" use_text_overlay="off" alignment="center" background_layout="dark" allow_player_pause="off" text_border_radius="3" header_font_select="default" header_font="||||" body_font_select="default" body_font="||||" custom_button="off" button_font_select="default" button_font="||||" button_use_icon="default" button_icon_placement="right" button_on_hover="on"] [/et_pb_slide][et_pb_slide heading="Logo" background_image="http://fussball.torpedo-eisen.de/wp-content/uploads/2017/11/torpedo_eisen_final.png" background_position="default" background_size="default" background_color="#ffffff" use_bg_overlay="off" use_text_overlay="off" alignment="center" background_layout="dark" allow_player_pause="off" text_border_radius="3" header_font_select="default" header_font="||||" body_font_select="default" body_font="||||" custom_button="off" button_font_select="default" button_font="||||" button_use_icon="default" button_icon_placement="right" button_on_hover="on"] [/et_pb_slide] [/et_pb_fullwidth_slider][/et_pb_section][et_pb_section bb_built="1" fullwidth="off" specialty="off"][et_pb_row][et_pb_column type="4_4"][et_pb_text _builder_version="3.0.89" background_layout="light"]
+
+Mannschaftsvorstellung
+
+[/et_pb_text][et_pb_code _builder_version="3.0.89"][TORPEDO_KG][/et_pb_code][/et_pb_column][/et_pb_row][/et_pb_section]
