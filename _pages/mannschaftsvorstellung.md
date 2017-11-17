@@ -4,7 +4,8 @@ post_title: Mannschaftsvorstellung
 author: torpedophilip
 post_excerpt: ""
 layout: page
-permalink: http://fussball.torpedo-eisen.de/test-1/
+permalink: >
+  http://fussball.torpedo-eisen.de/mannschaftsvorstellung/
 published: true
 post_date: 2017-11-07 10:22:51
 ---
