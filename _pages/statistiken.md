@@ -1,11 +1,11 @@
 ---
 ID: 224
-post_title: Hall of Fame
+post_title: Statistiken
 author: torpedojan
 post_excerpt: ""
 layout: page
 permalink: >
-  http://fussball.torpedo-eisen.de/hall-of-fame/
+  http://fussball.torpedo-eisen.de/statistiken/
 published: true
 post_date: 2017-11-17 11:07:51
 ---
