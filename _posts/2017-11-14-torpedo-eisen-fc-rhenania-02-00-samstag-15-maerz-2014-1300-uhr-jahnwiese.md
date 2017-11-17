@@ -9,6 +9,8 @@ permalink: >
 published: true
 post_date: 2017-11-14 12:49:36
 ---
+<span style="font-family: sans-serif; font-size: small;"><b><img class="wp-image-185 alignright" src="http://fussball.torpedo-eisen.de/wp-content/uploads/2017/11/torpedo_eisen_final_klein.png" alt="" width="118" height="110" /></b></span>
+
 <span style="font-family: sans-serif; font-size: small;"><b>Torpedo Eisen - FC Rhenania 0:2 (0:0)</b></span>
 
 <span style="font-family: sans-serif; font-size: small;"><b>Samstag, 15. März 2014, 13:00 Uhr Jahnwiese</b></span>
