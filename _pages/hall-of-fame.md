@@ -5,7 +5,7 @@ author: torpedojan
 post_excerpt: ""
 layout: page
 permalink: >
-  http://fussball.torpedo-eisen.de/hall-of-fame-2/
+  http://fussball.torpedo-eisen.de/hall-of-fame/
 published: true
 post_date: 2017-11-17 11:10:22
 ---
