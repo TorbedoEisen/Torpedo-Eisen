@@ -5,9 +5,9 @@ author: torpedoalex
 post_excerpt: ""
 layout: post
 permalink: >
-  http://fussball.torpedo-eisen.de/2017/11/14/torpedo-eisen-3beiner-22-01-sonntag-6-april-2014-1500-uhr-jahnwiese/
+  http://fussball.torpedo-eisen.de/2014/04/06/torpedo-eisen-3beiner-22-01-sonntag-6-april-2014-1500-uhr-jahnwiese/
 published: true
-post_date: 2017-11-14 12:50:06
+post_date: 2014-04-06 12:50:06
 ---
 <strong>Torpedo Eisen - 3Beiner 2:2 (0:1)</strong>
 
