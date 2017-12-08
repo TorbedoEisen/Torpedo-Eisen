@@ -1,6 +1,6 @@
 ---
 ID: 310
-post_title: 'Torpedo Eisen &#8211; Staus und Behinderungen'
+post_title: 'Torpedo Eisen &#8211; Staus und Behinderungen (5:1)'
 author: torpedophilip
 post_excerpt: ""
 layout: post
