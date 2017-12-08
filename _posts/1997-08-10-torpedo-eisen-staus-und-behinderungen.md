@@ -5,9 +5,9 @@ author: torpedophilip
 post_excerpt: ""
 layout: post
 permalink: >
-  http://fussball.torpedo-eisen.de/1997/08/01/torpedo-eisen-staus-und-behinderungen/
+  http://fussball.torpedo-eisen.de/1997/08/10/torpedo-eisen-staus-und-behinderungen/
 published: true
-post_date: 1997-08-01 18:00:09
+post_date: 1997-08-10 18:00:09
 ---
 Am Vormittag deutete noch nichts darauf hin, daß das Spiel unter ungewöhnlichen Bedingungen stattfinden würde. Gegen Mittag einsetzende sintflutartige Regenfälle sorgten dann allerdings dafür, daß die Jahnwiese um 15.00 Uhr eher einem See als einem Fußballplatz glich. Dies konnte beide Mannschaften aber nicht von der Durchführung der Partie abbringen.
 
