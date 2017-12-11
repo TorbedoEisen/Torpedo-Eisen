@@ -9,7 +9,7 @@ permalink: >
 published: true
 post_date: 2001-04-21 11:00:02
 ---
-achdem wieder einmal die Platzwärter der Jahnwiese den Freunden des "Rasensports" einen Strich durch die Rechnung machten, mußte das Spiel gegen BFS auf der ungeliebten roten Erde am Sülzburger Weg stattfinden. Im Vergleich zur Vorwoche befand sich aber der Ascheplatz in einem erheblich besseren Zustand, was vor allem der technisch stärkeren Mannschaft von TE zugute kommen sollte. 
+Nachdem wieder einmal die Platzwärter der Jahnwiese den Freunden des "Rasensports" einen Strich durch die Rechnung machten, mußte das Spiel gegen BFS auf der ungeliebten roten Erde am Sülzburger Weg stattfinden. Im Vergleich zur Vorwoche befand sich aber der Ascheplatz in einem erheblich besseren Zustand, was vor allem der technisch stärkeren Mannschaft von TE zugute kommen sollte. 
 
 Von der ersten Minute an ließ TE keinen Zweifel aufkommen, dass es die unnötige Niederlage gegen RZPH vergessen machen wollte. TE kontrollierte das Spielgeschehen von Beginn an nach Belieben. Dabei erwieß es sich als taktisches Meisterstück den sonst über rechts operierenden Christoph H. als zweiten Stürmer neben Christian T. aufzustellen. Eine Maßnahme auf die sich BFS nie richtig einstellen konnte. Diese beiden waren auch maßgeblich am 1:0 beteiligt, als Christoph H. eine Ecke auf den kurzen Pfosten schlug, Christian T. den Ball mit dem Kopf verlängerte und David mühelos den Ball aus 2m über die Linie drückte. 
 
