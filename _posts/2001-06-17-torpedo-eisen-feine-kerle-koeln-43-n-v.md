@@ -1,6 +1,6 @@
 ---
 ID: 475
-post_title: 'Torpedo Eisen &#8211; Feine Kerle Köln (4:3 n.V.)'
+post_title: 'Virtelfinale: Torpedo Eisen &#8211; Feine Kerle Köln (4:3 n.V.)'
 author: torpedophilip
 post_excerpt: ""
 layout: post
