@@ -1,0 +1,18 @@
+---
+ID: 419
+post_title: 'Torpedo Eisen &#8211; Roter Stern Rathenau (3:2)'
+author: torpedophilip
+post_excerpt: ""
+layout: post
+permalink: >
+  http://fussball.torpedo-eisen.de/2000/04/30/torpedo-eisen-roter-stern-rathenau-32/
+published: true
+post_date: 2000-04-30 13:00:00
+---
+Ein vorentscheidenes Spiel stand für Torpedo Eisen an. Mit einem Sieg gegen einen direkten Konkurrenten könnte ein großer Schritt in Richtung Viertelfinale gemacht werden. Der Gedanke an eine vorzeitige Qualifikation schien die Torpedo Eisen - Spieler aber in den ersten 20 Minuten eher zu lähmen, als zu beflügeln. Roter Stern Rathenau (=RSR) diktierte von Beginn das Spielgeschehen durch massives Pressing. Folgerichtig kamen sie bereits nach einigen Minuten - u.a. durch einen Kopfball an die Latte - zu großen Chancen. Für die 1:0 Führung der Gäste bedurfte es aber der Mithilfe des Schiedsrichters, der nach einem Foul an einen Torpedo Eisen - Spieler (!) zum Erstaunen aller auf Elfmeter für RSR entschied. Der Rückstand schien jedoch die Spieler von Torpedo Eisen wach zu rütteln. Endlich wurden die Zweikämpfe angenommen, die Mannschaft stand jetzt kompakter.
+
+Nach 30 Minuten der Ausgleich. Marc Schreiner führt einen Freistoß schnell aus, paßt auf Björn Gerstenberger, der sich mit einer geschickten Drehung von seinem Gegenspieler löst und zum 1:1 problemlos einschiebt. Mit dem Spielstand von 1:1 ging es in die Pause. Torpedo Eisen schien nach der Pause da weiterzumachen, wo sie Ende der 1. Halbzeit aufgehört hatten. Endlich flüssige Kombinationen im Mittelfeld, die man vorher vermißt hatte. Durch die schönste Kombi des Spieles ging Torpedo Eisen in Führung. Ausgangspunkt war ein Paß in Höhe der Mittellinie von Kai auf Philip, der den Ball direkt auf die rechte Außenbahn weiterleitete, von wo aus Christian mit einer mustergültigen Flanke Björn bediente und dieser mit einem wunderschönen Kopfball zum 2:1 vollendete. Klasse, das war richtig schöner Fußball!
+
+Torpedo Eisen ließ jetzt nicht nach und spielte weiter mutig nach vorne. 5 Minuten nach der Führung schnappt sich Lutz den Ball, spurtet über das halbe Feld, legt klug auf Björn ab und dieser hat keine Mühe seinen dritten Streich perfekt zu machen. 3:1, die Vorentscheidung? Sie wäre es wohl gewesen, wenn der Schiri nach klarer Notbremse an Christian Thomson die fällige rote Karte gegen den RSR - Spieler gezogen hätte, aber der Pfiff blieb aus. RSR merkte nun, daß das Spiel vielleicht doch noch umzubiegen ist. In der 75. Minute dann der Anschlußtreffer. Die letzten 10 Minuten spielen sich fast ausschließlich am Strafraum von Torpedo Eisen ab. Die Abwehr um Libero Marc rückt immer mehr in den Mittelpunkt des Geschehens. Es kommt Hektik auf. Philip läßt sich von dieser anstecken und rempelt bei einem Eckball seinen Gegenspieler; dieser fällt spektakulär und es gibt einen berechtigten Elfmeter. Damit Vorhang auf für unseren "Hexer" Henning. Der in der Bunten Liga schon gefürchtete Elfmeterkiller wuchs wieder einmal über sich hinaus. Er parierte sowohl den Elfer als auch den Nachschuß aus 5 m, einfach meisterlich! Das war das Signal für alle Torpedos noch mal bis zum Ende zu fighten.
+
+Mit etwas Glück und den überragenden Henning und Björn konnte Torpedo Eisen schließlich die drei so wichtigen Punkte gegen den Mitkonkurrenten einfahren. Dieses Spiel hätte aber auch anders ausgehen können. Schon am kommenden Sonntag hat Torpedo Eisen die Möglichkeit, sich vorzeitig als Gruppensieger für das Viertelfinale zu qualifizieren.
