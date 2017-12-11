@@ -5,9 +5,9 @@ author: torpedophilip
 post_excerpt: ""
 layout: post
 permalink: >
-  http://fussball.torpedo-eisen.de/2017/12/11/meisterschaftsviertelfinale-torpedo-eisen-inter-filos-12/
+  http://fussball.torpedo-eisen.de/1999/03/03/meisterschaftsviertelfinale-torpedo-eisen-inter-filos-12/
 published: true
-post_date: 2017-12-11 10:44:02
+post_date: 1999-03-03 18:00:02
 ---
 Die Runde der letzten acht war wie vor zwei Jahren auch diesmal die Endstation für Torpedo Eisen. Alles in allem aber ein schöner Erfolg bei insgesamt 48 teilnehmenden Mannschaften. Doch der Reihe nach:
 
