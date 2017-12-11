@@ -1,6 +1,6 @@
 ---
 ID: 370
-post_title: 'Meisterschaftsviertelfinale: Torpedo Eisen &#8211; Inter Filos (1:2)'
+post_title: 'Viertelfinale: Torpedo Eisen &#8211; Inter Filos (1:2)'
 author: torpedophilip
 post_excerpt: ""
 layout: post
