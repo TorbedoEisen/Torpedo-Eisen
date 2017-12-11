@@ -1,0 +1,22 @@
+---
+ID: 470
+post_title: 'Torpedo Eisen &#8211; Beton Union (6:0)'
+author: torpedophilip
+post_excerpt: ""
+layout: post
+permalink: >
+  http://fussball.torpedo-eisen.de/2000/10/15/torpedo-eisen-beton-union-60/
+published: true
+post_date: 2000-10-15 12:00:32
+---
+So macht Fußball Spaß! Tolle äußere Bedingungen, ein fairer Gegner und ein hochklassiges Spiel machten diesen Sonntag Mittag zu einem Erlebnis für alle Fans (OK, es waren nur drei da). Mit einem ungefährdeten 6:0 sicherte sich Torpedo Eisen vorzeitig den Gruppensieg und den Einzug in die Championsleague.
+
+Das Spiel begann auf beiden Seiten sehr vorsichtig, schließlich war beiden Mannschaften klar, daß der Sieger den ersten Platz in der Tabelle sicher haben würde. Und es entwickelte sich ein echtes Endspiel in der Gruppe 4. Nach dem ersten Abtasten übernahm Torpedo Eisen das Zepter und erspielte sich eine optische Überlegenheit. Doch viele Torchancen ließ die kompakte und gut gestaffelte Abwehr der Beton Union nicht zu. Christian (2x), Lutz und Marc erspielten sich zwar torreife Szenen, doch Torhüter Ansgar im Beton Union Tor machte diese Schüsse mit wirklichen Glanzparaden zunichte. Auf der Gegenseite erlebte "Ersatztorwart" Axel einen ruhigen Spielauftakt. Echte Torchancen konnte sich die Beton Union nicht erarbeiten, aber blieb über geschickt vorgetragene Konter immer wieder gefährlich. Daran änderte sich bis zur Halbzeit nichts mehr.
+
+Aber dann: Nach einer kurzen taktischen Besprechung in der Pause setzte Torpedo Eisen endlich das um, wozu die Mannschaft eigentlich schon immer in der Lage sein sollte, nämlich den Ball und Gegner laufen zu lassen und selbst die Tore zu schießen. Direkt nach dem Wiederanpfiff wurde der Ball schön auf dem rechten Flügel nach vorne getragen und Kai flankte von der Außenposition in Richtung Elfmeterpunkt, wo der frei stehende Christian den Ball mit einem Volleyschuß zum 1:0 in die rechte Torecke beförderte, unhaltbar für Ansgar. Nur vier Minuten später kam es dann fast zu einer Kopie des Tores. Torpedo machte seinem Namen alle Ehre, als Christoph wiederum von der rechten Außenseite scharf hereinflankte und Christian den Ball mit einem sehenswerten Flugkopfball zum 2:0 versenkte.
+
+Torpedo Eisen war nun die klar dominierende Mannschaft. Die Abwehr um Marc, Guido und dem vor Spielfreude sprühenden Kai ließ den gegnerischen Stürmern nicht den Hauch einer Torchance. Im Gegenteil wurde der Ball sehr überlegt aus der Abwehr und dem Mittelfeld nach vorne getragen. Sogar das Spiel nach hinten und das bewußte Schauen nach dem besser postierten Nebenmann klappte plötzlich wie nie zuvor. Die Beton Union wurde nun fast durgehend in der eigenen Hälfte eingeschnürt. Konsequenter Weise fiel dann auch schnell das 3:0. Spielmacher Philip, der über 90 Minuten den Spielaufbau souverän lenkte und die Stürmer immer wieder Klasse in Szene setzte, konnte sich an der linken Seite freispielen und scharf und platziert auf David flanken, der wie zuvor schon Christian einen torpedomäßigen Flugkopfball in das gegnerische Tor versenken konnte.
+
+Beton Union gab sich nun geschlagen. Die über eine Stunde kompakt stehende und mit ganzem Herzen kämpfende Abwehr begann sich nun so langsam aufzulösen. Fast schon bezeichnend war in dieser Situation das 4:0. Nach einer Ecke von Philip schießt der eigene Abwehrspieler der Beton Union auch noch unbedrängt den Ball in das eigene Tor. Torpedo Eisen erspielte sich nun Chancen am Fließband. Ein Abseitstor von Guido nach toller Vorarbeit von David wurde nicht gegeben. Auch Jörg scheiterte knapp an dem immer noch hervorragenden gegnerischen Torwart. Doch zweimal sollte es noch im Beton Union Tor rappeln. Zunächst krönte Philip seine starke Leistung mit einem selbstgeschossenen Tor zum 5:0 bevor er dann noch einmal von rechts außen Christian bediente, der einen Volleyschuß unter die Torlatte zum abschließenden 6:0 versenken konnte.
+
+Auch in dieser Höhe fiel der Sieg für Torpedo Eisen verdient aus. Eine superstarke Abwehrleistung und ein sehr überlegter Spielaufbau, insbesondere in der zweiten Halbzeit, machten die spielerisch stärkste Leistung von Torpedo Eisen seit langem möglich. Wenn Torpedo Eisen dies doch nur über den Winter bewahren könnte...
