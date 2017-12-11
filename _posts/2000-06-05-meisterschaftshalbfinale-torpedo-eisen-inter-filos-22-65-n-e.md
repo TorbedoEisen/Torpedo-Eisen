@@ -1,6 +1,6 @@
 ---
 ID: 406
-post_title: 'Finale: Torpedo Eisen &#8211; Inter Filos 2:2 (6:5 n.E.)'
+post_title: 'Halbfinale: Torpedo Eisen &#8211; Inter Filos 2:2 (6:5 n.E.)'
 author: torpedophilip
 post_excerpt: ""
 layout: post
