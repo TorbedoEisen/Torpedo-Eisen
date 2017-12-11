@@ -1,0 +1,18 @@
+---
+ID: 378
+post_title: 'Torpedo Eisen &#8211; Sprit Connection (2:3)'
+author: torpedophilip
+post_excerpt: ""
+layout: post
+permalink: >
+  http://fussball.torpedo-eisen.de/1999/04/25/torpedo-eisen-sprit-connection-23/
+published: true
+post_date: 1999-04-25 15:00:46
+---
+Alles war eigentlich wie bestellt. Sonnenschein, 20 Grad und sogar 15 Torpedo Spieler, so daß genügend gewechselt werden konnte, bevor Konditionsprobleme auftreten konnten. Torpedo Eisen zeigte sich von der überraschenden Niederlage der Vorwoche gut erholt. Mit dazu beigetragen hatten sehr wahrscheinlich auch die zahlreichen schadenfrohen E-Mails, die auf unserer Homepage eingegangen waren. Von Anfang an gelang das eigentlich unerhoffte, nämlich die Sprit Connection unter Druck zu setzen. Die Abwehr stand sicher und nach vorne entwickelte sich ein gefälliges Spiel. Besonders Jörg, die beiden Marcs, Kai und Lutz präsentierten sich in Spiellaune. Nach 15 Minuten jedoch die erste Ecke für Sprit Connection und ein alter, allerdings auch typischer Torpedo Fehler: Niemand fühlte sich für die Deckung der langen Stürmer zuständig. Wie schon in der letzten Partie fällt das völlig unnötige 0:1 nach dem Eckball durch einen schönen Kopfball des Sprit Angreifers.
+
+Danach wurde das Spiel zumindest für die Zuschauer noch besser. Beide Mannschaften schenkten sich nichts und kamen zu hochkarätigen Chancen, die jedoch allesamt nicht genutzt wurden. Nach gut einer Stunde dann die Parallele zur ersten Halbzeit, nur nur mit vertauschten Vorzeichen: Ecke für Torpedo Eisen, Sebastian springt am höchsten und verwandelt per Kopf zum verdienten 1:1 Ausgleich. Tragisch, das ausgerechnet nach diesem schönen Tor Sebastian an der Schlüsselszene nicht ganz schuldlos war, die Torpedo Eisen für die nächsten 15 Minuten völlig aus dem Konzept bringen sollte. An der linken Außenlinie verliert er unbedrängt den Ball, Sprit Connection kontert daraufhin sehr schnell und geschickt, was durch das 1:2 nur kurz nach dem Ausgleich belohnt wurde.
+
+Bei Torpedo Eisen riß dadurch der Faden komplett. Verwirrende Auswechselungen, nur noch hohe, weite Bälle ins Niemandsland kennzeichneten das Spiel. Kaum verwunderlich, daß die Sprit Connection in dieser Phase wenig Mühe hatte, das Ergebnis auf 1:3 auszubauen, und das auch verdient. Dachten nun alle, das wars, so zeigte sich zumindest bei Torpedo Eisen in den letzten zehn Minuten noch kämpferischer Ehrgeiz. Eine hohe Flanke von Christoph aus München auf der rechten Seite wird von Christian schulbuchmäßig mit dem Kopf angenommen und von fast 16 Metern Entfernung ins Tor gesetzt, nur noch 2:3. Die letzten 4 Minuten gab es dann nur noch ein stürmisches Anrennen auf das Tor der Sprit Connection. Da dies auch zu Chancen führte, stieg die Spannung noch mal erheblich. In der 90. Minute hieß es dann noch einmal Luft anhalten für die Sprit Connection. 18 Meter vor dem Tor, halb links, gibt es Freistoß für Torpedo Eisen. Die Mauer der Sprit Connection wird zu weit seitlich aufgestellt und auch der Torwart steht ziemlich falsch. Elmar läuft an und hämmert den Ball auf die rechte Torecke, doch leider streicht er um wenige Zentimeter am Tor vorbei. Damit war der Traum vom Ausgleich vorbei.
+
+Zumindest kämpferisch war bei Torpedo Eisen eine Steigerung erkennbar. Wenn beim nächsten mal das Wechselspiel wieder besser organisiert wird, bestehen trotz der zwei Niederlagen noch Chancen auf das Weiterkommen, nur es dürfen jetzt keine Punkte mehr abgegeben werden.
