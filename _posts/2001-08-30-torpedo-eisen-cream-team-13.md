@@ -1,6 +1,6 @@
 ---
 ID: 451
-post_title: 'Torpedo Eisen &#8211; Cream Team (1:3)'
+post_title: 'Halbfinale: Torpedo Eisen &#8211; Cream Team (1:3)'
 author: torpedophilip
 post_excerpt: ""
 layout: post
