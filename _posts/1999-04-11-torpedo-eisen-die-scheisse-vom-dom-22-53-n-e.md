@@ -1,6 +1,6 @@
 ---
 ID: 401
-post_title: 'Torpedo Eisen &#8211; Die Scheiße vom Dom (2:2) 5:3 n.E.'
+post_title: 'Torpedo Eisen &#8211; Die Scheiße vom Dom (5:3 n.E.)'
 author: torpedophilip
 post_excerpt: ""
 layout: post
