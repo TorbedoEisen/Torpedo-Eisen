@@ -1,0 +1,22 @@
+---
+ID: 462
+post_title: 'Torpedo Eisen &#8211; Sprit Connection (1:0)'
+author: torpedophilip
+post_excerpt: ""
+layout: post
+permalink: >
+  http://fussball.torpedo-eisen.de/2001/05/27/torpedo-eisen-sprit-connection-10/
+published: true
+post_date: 2001-05-27 15:00:37
+---
+Endspielstimmung bei Torpedo Eisen! Nur ein Sieg konnte Torpedo Eisen heute den Gruppensieg und damit die Qualifikation für das Viertelfinale bringen. Bis auf den verletzten Axel konnte Torpedo Eisen in Bestbesetzung antreten. 
+
+Zwar wurde der Sprit Connection die erste kleine Torchance überlassen, doch danach nahm Torpedo Eisen das Zepter in die Hand und kontrollierte das Spiel deutlich. Die bombenfeste Abwehr um Thomas, Guido, Kai und Sascha ließ in der ersten Halbzeit keine weiteren Chancen mehr zu und leitete mit viel Übersicht, Kurzpaßspiel und flachen Bällen immer wieder gefährliche Angriffe ein. Nicht umsonst gehört auch die Sprit Connection mit zu den besten Mannschaften der Liga, die ebenfalls das Spiel aus einer stabilen Abwehr heraus versteht, so daß Torpedo Eisen nur mit viel Energie zu guten Torchancen fand. Nach 20 Minuten verpaßte David um einen Schritt den Ball, der einschußbereit im Fünfmeterraum vor dem gegnerischen Tor lag. Nur wenige Minuten später köpfte Marc den Ball nach einer Ecke fast mustergültig in Richtung Winkel. Doch leider strich der Ball wenige Zentimeter über das Gehäuse. Nach gut 30 Minuten kam es dann zu einer Szene, die noch Folgen haben sollte. Nach einer langen Flanke sprangen David und der Torwart von Sprit Connection beide zum Ball. Dabei traf David den Torwart unglücklich mit seiner Hand. Schiedsrichter Lacroix sah darin ein Foul und zeigte David die gelbe Karte. 
+
+Die Partie wurde zunächst auf hohem Niveau fortgesetzt. Torpedo Eisen war die läuferisch und kämpferisch stärkere Mannschaft, was vor der Halbzeitpause schließlich auch belohnt werden sollte. David erkämpfte sich am linken Flügel den Ball, flankte nach einem kurzen Sprint über die Abwehr von Sprit in den Lauf von Christian, der mit einem wunderschönen Kopfballtor Torpedo Eisen mit 1:0 in Führung brachte. Zu diesem Zeitpunkt war Torpedo Eisen erstmalig für das Viertelfinale qualifiziert.
+
+Die zweite Halbzeit begann zunächst wie die erste geendet hatte. Torpedo Eisen war druckvoller und spielte überlegter. 10 Minuten nach dem Wiederanpfiff schlug Torpedo Eisen einen weiten Ball in die gegnerische Hälfte. David lief dem Ball hinterher, doch der aus seinem Tor herauseilende Torwart von Sprit Connection war einen Tick schneller und drosch den Ball weg. Dabei traf er mit seinem Fuß den in dieser Situation etwas übermotiviert agierenden David am Knie. Beide Spieler wälzten sich zunächst auf dem Boden. Dann zeigte Schiedsrichter Lacroix David die gelb-rote Karte. Nach dieser sehr harten Entscheidung mußte Torpedo Eisen mit nur noch zehn Spielern auskommen.
+
+In der Folge zog sich Torpedo Eisen bei dem schwülwarmen Wetter etwas weiter in die eigene Hälfte zurück. Sprit Connection erschien nun als die spielbestimmende Mannschaft. Mehr als Schüsse aus der zweiten Reihe, die dem gut haltenden Markus aber keine Probleme bereiteten, sprangen dabei aber nicht heraus. Im Gegenteil blieb Torpedo Eisen durch Konter weiterhin gefährlich. Alles schien darauf hinzudeuten, daß Torpedo Eisen das Ergebnis clever über die Zeit bringen sollte. Doch dann wurde es noch einmal sehr turbulent: Nach einer kleinen Rangelei zwischen Jörg und eienem Sprit-Spieler, bekam der völlig verduzte Jörg eine Zehnminutenstrafe aufgebrummt. Torpedo Eisen war von nun an nur noch mit neun Leuten auf dem Platz. Doch es sollte noch schlimmer kommen. Kurz vor Ende erhielt Thomas die gelb-rote Karte, als er sich bei einem Freistoß für Sprit für einen kurzen Moment vor den Ball stellte und dadurch das Spiel verzögerte. Von nun an war Torpedo Eisen mit drei Mann weniger auf dem Platz. Doch auch dies sollte der Sprit Connection nicht reichen, um zum Ausgleich zu kommen. Die verbliebenen Torpedo Spieler rannten, als ob es um ihr Leben ginge und schmissen sich in jeden Schußversuch des Gegners hinein. Daß Schiedsrichter Lacroix das Spiel dann allerdings einige Minuten zu früh abpfiff, war vielleicht als Konzessionsentscheidung zu verstehen.
+
+Mit der gezeigten Leistung, dem kämpferischen Einsatz und dem in der ersten Halbzeit gelungenen Kombinationsspiel hat Torpedo Eisen auch dieses Jahr gute Chancen, noch weiter als in das Viertelfinale zu kommen.
