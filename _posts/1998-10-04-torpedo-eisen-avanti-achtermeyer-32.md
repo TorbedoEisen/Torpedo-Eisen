@@ -5,9 +5,9 @@ author: torpedophilip
 post_excerpt: ""
 layout: post
 permalink: >
-  http://fussball.torpedo-eisen.de/1999/10/04/torpedo-eisen-avanti-achtermeyer-32/
+  http://fussball.torpedo-eisen.de/1998/10/04/torpedo-eisen-avanti-achtermeyer-32/
 published: true
-post_date: 1999-10-04 15:00:58
+post_date: 1998-10-04 15:00:58
 ---
 Endlich war es soweit: das erste Meisterschaftsspiel für Torpedo Eisen in dieser Saison. Kurz vor dem Anpfiff sah es allerdings so aus, als müßte das Spiel womöglich ausfallen. Zwar hatte Avanti Achtermeyer einen Platz auf der Jahnwiese gemietet, das hinderte die Stadt jedoch nicht daran, den Platz für ein Bezirksligaspiel von Borussia Hohenlind zur Verfügung zu stellen. Ein unmöglicher Vorgang! Schließlich entschloß man sich, das Spiel auf Asche am Salzburger Weg auszutragen. So kam es dann zum ersten Aschenplatzspiel in der Geschichte von Torpedo Eisen .
 
