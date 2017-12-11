@@ -1,6 +1,6 @@
 ---
 ID: 449
-post_title: 'Torpedo Eisen &#8211; Schönheit und Ausdauer (2:0)'
+post_title: 'Virtelfinale: Torpedo Eisen &#8211; Schönheit und Ausdauer (2:0)'
 author: torpedophilip
 post_excerpt: ""
 layout: post
