@@ -1,6 +1,6 @@
 ---
 ID: 403
-post_title: 'Meisterschaftsviertelfinale: Torpedo Eisen &#8211; Zwietracht Dresch und Flegel (4:1 n.E.)'
+post_title: 'Viertelfinale: Torpedo Eisen &#8211; Zwietracht Dresch und Flegel (4:1 n.E.)'
 author: torpedophilip
 post_excerpt: ""
 layout: post
