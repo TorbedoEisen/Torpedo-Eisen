@@ -1,0 +1,18 @@
+---
+ID: 506
+post_title: 'Torpedo Eisen &#8211; Juventus Urin (2:2)'
+author: torpedophilip
+post_excerpt: ""
+layout: post
+permalink: >
+  http://fussball.torpedo-eisen.de/2001/09/30/torpedo-eisen-juventus-urin-22/
+published: true
+post_date: 2001-09-30 15:00:21
+---
+Torpedo Eisen ist nach der zweiten Vizemeisterschaft in Folge automatisch Favorit in allen Spielen und trägt weiterhin schwer an dieser Last. Zum einen sind die Gegner hoch motiviert, zum anderen kämpfen sie bis zum Umfallen vor dem eigenen Tor. Mit dieser Einstellung ging auch Juventus Urin ins Spiel. Dennoch erspielte sich Torpedo Eisen diesmal von Anfang an eine klare Überlegenheit, konnte aber noch keine wirklich zwingenden Torschüsse für sich verbuchen. Nach 12 Minuten kam dann das erstemal eine Art Angriff von Juventus Urin zustande. Die Flanke von der linken Außenseite wäre allerdings ins Leere gelaufen, wenn, ja wenn nicht der von seinem Fußbruch genesene Jörg, der ansonsten eine starke Leistung erbrachte, unglücklich mit der Brust dazwischengekommen wäre und den Ball in das eigene Netz gelenkt hätte.
+
+Nach dem Rückstand verblasste das Spiel von Torpedo Eisen ein wenig und Juventus Urin gewann deutlich Spielanteile hinzu. Die klareren Chancen hatte jedoch weiterhin Torpedo Eisen. Doch der gut aufgelegte Neuzugang Gregor, Marc, Philip, Elmar und andere verfehlten aus aussichtsreichen Positionen oder scheiterten am guten gegnerischen Torhüter. Wie es besser geht, zeigte dann Juventus Urin. Zwei Abwehrspieler von Torpedo Eisen konnten sich nicht einigen, wer den Ball nehmen sollte, was vom Juventus Stürmer eiskalt ausgenutzt wurde. Er konnte so den eigentlich unerreichbaren Ball erlaufen und frei zum Torschuß zum 0:2 kommen. Torpedo Eisen war zwar geschockt, aber noch nicht K.O. 
+
+Nach der Halbzeit hatte sich Torpedo Eisen wieder gefangen und das Spiel sollte jetzt auch deutlich besser werden. Juventus Urin wurde in der eigenen Hälfte eingeschnürrt und es rollte Angriff um Angriff, doch Guido, Marc, Lutz und andere scheiterten knapp. Fast sah es schon so aus als ob Torpedo Eisen wieder als Verlierer vom Platz gehen sollte. Doch zuerst verlor Jubentus Urin nach wiederholtem Foulsspiel seinen elften Mann und dann konnte Axel das Trauerspiel nicht mehr mit ansehen. Aus 35 Metern zog er den Ball ab, der über den in dieser Situation schlecht postierten Torhüter zum lange verdienten Anschlußtreffer ins Netz segelte. Jetzt war Torpedo Eisen gar nicht mehr zu halten. Plötzlich klappten auch Spielaufbau und Kombinationsspiel wieder wie in alten Zeiten und der Ausgleich lag in der Luft. Nach einer schönen Kombination über Christian und Philip landete der Ball schließlich bei Lutz, der schon wie in so vielen Spielen zuvor mit einem plaziertem Schuß von der 16-Meterlinie unhaltbar zum 2:2 vollendete. 
+
+Jubentus Urin hatte nun nichts mehr entgegenzusetzen. Torpedo Eisen war drauf und drann, das Spiel noch komplett zu drehen. Doch Schiedsrichter Rudolf hatte ein Einsehen und pfiff pünktlich nach 90 Minuten ab. Obwohl Torpedo Eisen wieder Punkte abgegeben hatte, gab es einige Lichtblicke, die für die nächsten Spiele Mut machen. Neuzugang Gregor schlug voll ein und in der zweiten Halbzeit schien Torpedo Eisen auch das Rezept gefunden zu haben, wie man defensiv eingestellte und kämpferisch stark aggierende Teams aushebeln kann. Wenn diese Einstellung auch in das nächste Spiel gegen Inter Leckt mit hineingetragen werden kann, hat Torpedo Eisen noch alle Chancen, sich auch wieder für die Championsleague zu qualifizieren.
