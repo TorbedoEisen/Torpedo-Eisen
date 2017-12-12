@@ -1,0 +1,20 @@
+---
+ID: 508
+post_title: 'Torpedo Eisen &#8211; Inter Leckt (3:1)'
+author: torpedophilip
+post_excerpt: ""
+layout: post
+permalink: >
+  http://fussball.torpedo-eisen.de/2001/10/14/torpedo-eisen-inter-leckt-31/
+published: true
+post_date: 2001-10-14 15:00:08
+---
+23 Grad und Sonnenschein bildeten in Köln-Müngersdorf den perfekten Rahmen für ein schönes Fußballspiel. Torpedo Eisen hatte vor dem Start noch einige spontane Umbesetzungen vorzunehmen, da der für den verreisten Markus engagierte Torhüter nicht erschien. Markus II opferte sich daraufhin und stand erstmals in seinem Leben im Tor. Über 90 Minuten blieb er jedoch ohne Fehl und Tadel und zeigte eine starke Leistung.
+
+Eine starke Leistung zeigte zur Überraschung der heute zahlreich erschienenen Zuschauer auch der Rest von Torpedo Eisen, und das von Anfang an! Der Gegner wurde schnell und agressiv angegangen, Ballverluste provoziert und das eigene Spiel schön ruhig und mit Übersicht aufgebaut. Sogar das Flügelspiel klappte wieder hervorragend. So war es nicht verwunderlich, daß Torpedo Eisen sich in der ersten Halbzeit ein Reihe von Chancen erspielte. Obwohl zahlreich und schön über die Flügel vorgetragen, waren sie allerdings noch nicht so zwingend, daß unbedingt ein Tor hätte fallen müssen. Inter Leckt gelang es in der gesamten ersten Halbzeit nur bei zwei Ecken, für Gefahr vor dem Torpedo-Tor zu sorgen. An sonsten stand die Torpedo Abwehr um Sascha, Kai, Guido und Philip sicher und ließ nichts anbrennen.
+
+War die erste Halbzeit zwar noch arm an echten Höhenpunkten gewesen, so zeigte sie den Torpedo Spielern doch eins, sie hatten das Fußballspielen doch noch nicht verlernt und fingen nun wieder an, an sich zu glauben. In der zweiten Halbzeit kam dann Torpedo Eisen immer häufiger brandgefährlich vor das gegnerische Tor. Inter Leckt konnte sich aber für das "goßzügige" Auslassen von einem halben Dutzend todsicherer Chancen bedanken. Hätte es am Ende 6:1 oder 7:1 gestanden, hätte dies den Spielverlauf auch noch korrekt widergegeben. Das Anrennen von Torpedo Eisen wurde schließlich in der 58. Minute belohnt. Nach einer scharfen Ecke von Elmar reagierte David am schnellsten und verwandelte aus kurzer Distanz sicher zum hochverdienten 1:0. Nur wenig später gab es eine schöne Kombination auf dem linken Flügel. Philip setzte Elmar in Szene, der den Ball auf Höhe des 16 Meterraumes quer auf den freigelaufenen Gregor spielte, der danach mit einem strammen Schuß zum 2:0 verwandelte. 
+
+Danach sah es so aus, als ob bei Inter Leckt alle Dämme brechen sollten. Sinisa, David, Christian, Philip, Jörg und andere erspielten sich immer wieder hochkarätige Torchancen, doch der Ball wollte einfach nicht die Linie überqueren. Wer nicht trifft, der wird bestraft. So auch in diesem Spiel. Gut 20 Minuten vor Schluß sollte Inter Leckt zu seiner einzigen Torchance in der zweiten Halbzeit kommen. Nach einem langen Paß nahm der Inter Stürmer den Ball geschickt auf, konnte sich gegen zwei Abwehrspieler durchsetzen und erzielte den Anschlußtreffer zum 1:2. Doch auch nach diesem Tor dominierte Torpedo Eisen weiter das Spiel. Jörg und Christian hätten schon kurz nach dem Gegentor alles klar machen können, doch dies sollte dem wiedererstarkten David vorbehalten bleiben. 30 Meter vor dem Tor erkämpgte er sich einen zu kurzen Paß der Inter-Abwehr, ließ zwei Gegenspieler aussteigen, verlud den Torwart und stellte das 3:1 Endergebnis her. Kurz darauf hätte David noch fast auf 4:1 erhöht, doch sein guter Schuß strich knapp einem Meter am leeren Tor vorbei.
+
+Am Ende gab es dann noch eine unschöne Szene. Ein Spieler von Inter Leckt schmiß völlig gefrustet und unmotiviert den Ball Elmar mit voller Wucht aus zwei Metern ins Gesicht. Dafür gab es dann völlig verdient die rote Karte. Torpedo Eisen konnte heute erstmals nach dem Meisterschaftshalbfinale wieder in allen Belangen überzeugen. Mannschaftlich geschlossen, spielerisch und kämpferisch auf der Höhe kann so wieder mit jedem Gegner mitgehalten werden. Schon nächste Woche im Pokal wird sich zeigen, ob dies tatsächlich die Wende zu Besserem war.
