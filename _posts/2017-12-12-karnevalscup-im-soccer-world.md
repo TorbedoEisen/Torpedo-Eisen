@@ -1,0 +1,36 @@
+---
+ID: 553
+post_title: Karnevalscup im Soccer World
+author: torpedophilip
+post_excerpt: ""
+layout: post
+permalink: >
+  http://fussball.torpedo-eisen.de/2017/12/12/karnevalscup-im-soccer-world/
+published: true
+post_date: 2017-12-12 12:17:03
+---
+SoccerWorld lud ein zum Hallenturnier auf der einmaligen Kunstrasen-Anlage in Köln-Lövenich. Torpedo, die seit Eröffnung von SoccerWorld wöchentlich auf der Anlage trainieren, nahm dankend an und konnte den letzten Platz für das 16-köpfige Turnier noch bekommen.
+
+Allerdings schien es schwerer als erwartet eine schlagkräftige Truppe zusammen zu bekommen und so waren es lediglich 7 Eisener die gewollt waren sich der Herausforderung zu stellen. Zu den bewährten Stammkräften wie Guido, Sinisa, Christian, Björn und Philip gesellten sich noch Björns Bruder Dennis, der schon einige Male bei Bunte-Liga-Spielen seinen Können unter Beweis stellte, und Altmeister Werner, der auch sonst mit Torpedo mittrainiert. Zu allem Überfluß zog sich Björn beim Abschlußtraining auch noch eine Zerrung zu, so dass der Mannschaft nicht allzu große Chancen für das Turnier eingeräumt wurden. Aber es sollte alles ganz anders kommen.
+
+Das in den letzten Jahren in der Bunten Liga manifestierte Lospech blieb Torpedo auch dieses Mal treu. Eisen erwischte die schwerste Vorrundengruppen und sah sich 3 türkischen Teams gegenüber, die nun darauf brannten mit ihrer technischen Überlegenheit den Gegner in Grund und Boden zu spielen. So galt zunächst das Augenmerk ganz auf mannschaftliche Geschlossenheit und aggresives Zweikampfverhalten. Genau dies stellte sich später als Grundstein für den Erfolg heraus.
+
+Das erste Spiel ging gegen Team Egeli. Nach hektischem Spiel ging Torpedo jeweils mit 1:0 durch Björn und 2:1 durch Dennis in Führung, schaffte es aber nicht die Führung nach Hause zu bringen und musste durch ein Freistoß-Tor den Ausgleich hinnehmen. Herrschte zu diesem Zeitpunkt noch etwas Unzufriedenheit über den verpassten Sieg, so wich diese schnell nach dem zweiten Spiel gegen Kölntürkspor. Philip hat per Siebenmeter die seiningen in Führung gebracht und Christian baute die Führung mit einem lupenreinen Hattrick aus. Nach dem 2:2 und 4:0 schien der Einzug in das Viertelfinale in greifbare Nähe gerückt.
+
+Torpedo wollte in seinem letzten Vorrundenspiel nun nichts mehr anbrennen lassen und erstickte die letzten Hoffnungen des FC Trüp auf ein Weiterkommen mit einem 7:2 Kantersieg. Unter den Torschützen Christian, Björn, Dennis, Sinisa und Philip 2x auch der frischgebackene vierfache Vater Werner, der als ältester Turnierspieler wie ein Jungbrunnen den jungen Hasen das Fürchten lehrte.
+
+Die Bilanz nach der Vorrunde besser als erwartet. Als Gruppenerster ging es gegen Die Mongolen. Eine sehr junge Truppe, die mit starken Auftritten in der Vorrunde für Furore gesorgt hatte. Torpedo aber wich keinen Millimeter von seiner Taktik ab und ging äußerst konzentriert ans Werk. Philip sorgte mit 2 frühen Toren für eine beruhigende Führung. Danach spielte sich Torpedo in einen wahren Rausch. Jedes folgende Tor entsprang einer Kombination aus 3 bis 4 Stationen und mit 10:1 (Torschützen: Sinisa, Christian 2x, Dennis 2x, Björn 2x, Philip 3x) war den Mongolen schließlich der Zahn gezogen.
+
+Im Halbfinale wartet nun Action United und nach Einschätzung der Experten der vermutlich leichteste Gegner von den drei möglichen. Wieder brachte Philip Eisen früh in Führung. Doch diese Führung war zum ersten Mal kontraproduktiv und Torpedo ließ ein wenig die sie vorher stark gemachte Kampfkraft vermissen. Selbst eine zweiminütige Überzahlsituation ließ Torpedo ungenutzt. Torpedo behielt zwar durch Tore von Dennis und Philip die Führung jedoch gab sich Action United nicht geschlagen und fightete sich immer wieder ran. Nur Dank unzähliger Parade von Guido konnte ein Rückstand verhindert werden. Schließlich war es Sinisa der mit einer unbändigen Willenskraft das 4:2 erzielte und für die Vorentscheidung sorgte. Das 3:4 Sekunden vor Schluß durch Action United war nur noch Ergebniskorrektur.
+
+Damit stand Torpedo im Finale und es war für alle Beteiligten wohl etwas überraschend. Angesichts der dünnen Personaldecke und zusätlichen Verletzungen von Björn und Philip ein großer, nicht zu erwartender Erfolg. Aber Eisen wollte mehr. Endlich das Trauma der verlorenen Endspiele besiegen, endlich am Ende auch mal ganz vorne zu stehen, das war das Begehren jedes einzelnen Torpedo-Spielers als es ins Finale ging. Im Finale stieß man auf einen alten Bekannten: Team Egeli. Das Team aus der Vorrunde, gegen das Torpedo als einziges Federn gelassen hat. Team Egeli wäre aber wahrscheinlich nicht so weit gekommen, hätte es sich nicht zusätzlich mit Spielern aus ausgeschiedenen Mannschaften verstärkt. Im Vorfeld waren sie daher leichter Favorit gegenüber Torpedo.
+
+Aber Eisen ließ sich davon ebeso wenig beeindrucken wie von der Mehrzahl der Fans, die Team Egeli lautstark unterstützten. Und wie schon in den vorangegangenen Spielen ging Torpedo durch ein frühes Tor von Philip in Führung. Aus schier unmöglichen Winkel traf er zum 1:0. Team Egeli nahm den Kampf an. Nachdem Guido schon zweimal prächtig parieren konnte war er beim dritten Mal chancenlos, 1:1.
+
+Doch alles was Torpedo vorher schon so ausgezeichnet hatte, fand seine Fortsetzung im Finale. Die unermüdliche kämpfenden Sinisa und Werner, die Antreiber Dennis und Björn und die stets brandgefährlichen Christian und Philip liefen nun zu Hochform auf. 5 Minuten vor Ende konnte sich Philip auf der linken Seite bei einem Konter gegen seinen Gegenspieler durchsetzen und legte den Ball vorbei an dem herauseilenden Torhüter auf den mitgelaufenen Björn, der den Ball zur wiederholten Führung über die Linie drückte.
+
+Doch die Führung wehrte nicht lange. Ein langer Ball in die Torpedo Abwehr, die Verteidigung uneins und ein schönes, unhaltbares Kopfballtor verwehrteTorpedo den sicher geglaubten Sieg. 2:2 nach reguläre Spielzeit wie schon im ersten Aufeinandertreffen.
+
+Da ohne Verlängerung gespielt wurde, mußte das Siebenmeterschießen die Entscheidnug bringen und daran hat bekanntlich Torpedo gute Erinnerungen. Noch nie hat Eisen ein Elfmeterschießen verloren. Im Bewußtsein dessen versenkten die drei Torpedo-Schützen Dennis, Christian und Philip ihre Siebenmeter ohne dem Torwart auch nur den Hauch einer Chance zu lassen. Nachdem die ersten beiden Elfer ähnlich schnörkelos von Team Egeli verwandelt wurden, lag es nun an dem besten Torhüter des Turniers seine Mannschaft zum Sieg zu verhelfen. Während sich der letzte Schütze von Team Egeli den Ball zu recht legte, fixierte Guido diesen wie es die Alteisen Torhüter-Legende Henning immer tat und mit einem Reflex konnte er den entscheidenen Siebenmeter halten, durch den Torpedo schließlich das Spiel gewann.
+
+Aufgrund der konzentrierten und engagierten Leistung ein verdienter Turniersieger wie es auch Veranstalter und ehemaliger Zweitligaprofi Andi Wessels sah. Und als dieser schließlich den Pokal an den Turniersieger überreichte, war allen wieder klar: "Marmor, Stein und Liebe bricht, nur Torpedo Eisen nicht"
