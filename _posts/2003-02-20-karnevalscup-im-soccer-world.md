@@ -5,9 +5,9 @@ author: torpedophilip
 post_excerpt: ""
 layout: post
 permalink: >
-  http://fussball.torpedo-eisen.de/2017/02/20/karnevalscup-im-soccer-world/
+  http://fussball.torpedo-eisen.de/2003/02/20/karnevalscup-im-soccer-world/
 published: true
-post_date: 2017-02-20 14:00:03
+post_date: 2003-02-20 14:00:03
 ---
 SoccerWorld lud ein zum Hallenturnier auf der einmaligen Kunstrasen-Anlage in Köln-Lövenich. Torpedo, die seit Eröffnung von SoccerWorld wöchentlich auf der Anlage trainieren, nahm dankend an und konnte den letzten Platz für das 16-köpfige Turnier noch bekommen.
 
