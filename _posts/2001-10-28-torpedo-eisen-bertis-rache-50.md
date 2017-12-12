@@ -1,0 +1,20 @@
+---
+ID: 512
+post_title: 'Torpedo Eisen &#8211; Bertis Rache (5:0)'
+author: torpedophilip
+post_excerpt: ""
+layout: post
+permalink: >
+  http://fussball.torpedo-eisen.de/2001/10/28/torpedo-eisen-bertis-rache-50/
+published: true
+post_date: 2001-10-28 15:00:12
+---
+Der Herbst ist gekommen und die Jahnwiese wurde pünktlich zum Pokalspiel gegen Bertis Rache gesperrt. Glücklicherweise gab es am Salzburger Weg auf Asche Ersatz und das Spiel konnte mit leichter Verspätung angepfiffen werden. Erstmals nach zwei Spielen war Torhüter Markus wieder mit an Bord und auch unser Marathonmann Lutz (ca. Platz 5400, 4:02 Stunden) war wieder mit dabei.
+
+Torpedo Eisen wollte von Anfang an keine Zweifel aufkommen lassen, wer den Platz als Sieger verlassen sollte. Bertis Rache wurde schnell in die eigene Hälfte gedrängt und schon nach wenigen Minuten hätte es im Tor von Bertis Rache klingeln müssen. Doch Christian scheiterte knapp am gegnerischen Torwart. Dieser paßte wenig später allerdings nicht auf und warf den Ball David vor die Füße. Dieser ließ sich nicht zweimal bitten und schlenzte den Ball aus 20 Metern über den Torwart zum 1:0 ins Tor. In der Folgezeit machte Torpedo Eisen weiter Druck und kam zu tollen Torchancen. Allein Saisonneuzugang Markus scheiterte zweimal aus aussichtsreicher Position. Doch auch Schüsse von Christoph, Lutz, Philip und Jörg fanden den Ball nicht ins Tor. Wie man es besser macht, zeigte dann Christian in alter Manier. An der Torauslinie, fast an der Ecke, eroberte sich Christian den Ball, ließ drei Gegner aussteigen und schob den Ball beherzt zum 2:0 über die Linie. Bertis Rache war bis zu diesem Zeitpunkt noch nicht gefährlich vor das Torpedo Tor gekommen. Zwar spielte die Mannschaft ganz gefällig und vor allem absolut fair. Doch spätestens 20 Meter vor dem Torpedo Tor blieb der Ball in der gut gestaffelten Torpedo-Abwehr hängen, in der Marc mit einer guten Leistung den am Auge verletzten Guido vertrat.
+
+Nach etwas mehr als einer halben Stunde versuchte Bertis Rache einen seiner seltenen Angriffe, der jedoch wiederum erfolglos blieb. Elmar spielte den Ball steil an der linken Außenlinie auf den freigelaufenen Philip, der nach einem kurzen Sprint in die Spitze auf David paßte, der ohne Mühe am gegnerischen Torhüter vorbei zum 3:0 einschießen konnte. Ein Konter wie aus dem Lehrbuch! Wer gedacht hatte, Torpedo Eisen würde jetzt ein wenig zurückschalten, sah sich getäuscht. Weiterhin wurde Druck gemacht. So auch in der 38. Minute. Christian stürmte an der rechten Außenlinie an Freund und Feind vorbei, hatte noch die Kraft, scharf aber platziert in die Mitte zu flanken, wo David den Ball aus vollem Lauf zum 4:0 in die Machen hämmerte.
+
+Nach der Halbzeit machte Torpedo Eisen dort weiter, wo die Mannschaft vor der Pause stehengeblieben war. Die Abwehr um Sascha, Kai und Marc plante den Spielaufbau sehr überlegt. Das Mittelfeld um Lutz, Philip, Jörg, Elmar, Christoph und Markus attackierte zum einen geschickt den Gegner und setzte immer wieder Christian und David gut in Szene. Dennoch sollte das nächste Tor aus einer Standardsituation fallen. Nach einer Ecke von Philip sprang David aus vollem Lauf in den Ball und köpfte zum 5:0 ein. Torpedo Eisen ließ es danach etwas ruhiger angehen. Zwar erspielten sich Philip, Markus und Christian noch eine Reihe an Chancen, aber es fehlte der letzte Biß, zu deutlich war die Führung. Im Gegenzug kam dann auch Bertis Rache zu einigen Chancen, so daß der Ehrentreffer durchaus verdient gewesen wäre. Doch entweder machte Torhüter Markus die Chancen mit großem Einsatz zu nichte oder der Pfosten rettete, wie bei einem Schuß in der 80. Minute. 
+
+Torpedo Eisen brachte das Spiel ruhig über die Zeit. Anscheinend wurde die Form aus der Vorsaison tatsächlich wiedergefunden, so daß beim Meisterschaftsspiel in einer Woche die Chancen ganz gut stehen, gegen Zap Zarap, die bisher eine ganz starke Saison spielen und auch in die Championsleague einziehen können, zu punkten.
