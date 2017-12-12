@@ -1,0 +1,22 @@
+---
+ID: 487
+post_title: 'Halbfinale: Torpedo Eisen &#8211; Sprit Connection (2:4)'
+author: torpedophilip
+post_excerpt: ""
+layout: post
+permalink: >
+  http://fussball.torpedo-eisen.de/2002/07/07/halbfinale-torpedo-eisen-sprit-connection-24/
+published: true
+post_date: 2002-07-07 15:00:00
+---
+Nach der dramatischen Aufholjagd beim Viertelfinale gegen Inter Filos in der Vorwoche waren sich alle einig: Gegen Sprit Connection muß ein früher Rückstand mit allen Mitteln verhindert wurden. Die Hoffnung, diesen Vorsatz erfüllen zu können, hielt aber nicht viel mehr als eine Minute. Beim ersten Angriff der Sprit Connection wurde einer ihrer Stürmer am Strafraumrand nicht konsequent genug attackiert und konnte aus sechzehn Metern Torentfernung abziehen. Zum Schrecken aller Torpedo-Spieler prallte der stramme Flachschuß vom Innenpfosten ins Tor. Es war also wieder einmal nichts mit der Vermeidung eines frühen Gegentors. Aber es sollte noch schlimmer kommen. In der neunten Minute setzte sich ein Spieler der Sprit Connection an der Seitenlinie durch und schlug eine eigentlich harmlose Flanke in den Torpedo-Strafraum. Libero Guido wollte auf Nummer sicher gehen und versuchte den Ball mit dem Oberkörper zur Ecke zu klären. Dummerweise fälschte er ihn aber unhaltbar ins eigene Tor ab, so daß Torpedo Eisen wieder einmal mit 0:2 hinten lag. 
+
+Von Aufbäumen war bei Torpedo Eisen nach dem Schock der beiden Gegentore zunächst merkwürdiger Weise nichts zu sehen. Sprit Connection war weiterhin die spielbestimmende Mannschaft und bereitete mit ihren quirligen Offensivspielern der Torpedo-Abwehr immer wieder Probleme. In der 24. Minute schien Torpedo Eisen die Situation jedoch im Griff zu haben und so wagte ein Spieler von Sprit Connection aus aussichtslosen 25 Metern Torentfernung einen Volleyschuß auf das Torpedo-Tor. Torhüter Markus sah den Ball schon weit über das Tor gehen und konnte daher nicht mehr reagieren, als sich der Ball Richtung Torwinkel senkte und zur Überraschung aller zum 0:3 einschlug. 
+
+Obwohl nun ein Desaster drohte, ging Torpedo Eisen weiterhin mit viel zu wenig Biß zu Werke. Letzter Hoffnungsträger war jetzt der frühere Torpedo-Torwart Henning, der eigentlich nur zum Zuschauen gekommen war, aber nach ungefähr einer halben Stunde als Feldspieler eingewechselt wurde. Dies konnte zunächst aber auch nicht viel ändern und so hätte in der ersten Halbzeit durchaus auch noch ein weiteres Gegentor fallen können. Zumindest das blieb Torpedo Eisen aber erspart. In der Halbzeitpause wurden dann die Erinnerungen an die Vorwoche hervorgekramt, als man ein schon verloren geglaubtes Spiel noch umbiegen konnte. 
+
+Und tatsächlich fing Torpedo Eisen in der zweiten Halbzeit endlich an zu kämpfen. Es entwickelte sich ein offener Schlagabtausch, in dem auch Torpedo Eisen zu ersten Chancen kam. In der 63. Minute wurden die Bemühungen schließlich belohnt. Eine lange Flanke von rechts landete bei Christian, der ungedeckt im Strafraum der Sprit Connection stand, den Ball sicher stoppte und ohne zu fackeln zum 1:3 in den linken Torwinkel hämmerte. 
+
+Doch die Hoffnung auf eine Wende währte nicht sehr lange. In der 71. Minute war ein Stürmer der Sprit Connection bei einem Steilpaß in den Torpedostrafraum den entscheidenden Tick schneller als der aus seinem Tor herausstürzende Markus und ein in der nähe postierter Torpedo-Abwehrspieler und konnte den Ball zum 1:4 ins Tor spitzeln. Torpedo Eisen versuchte jetzt trotz des aussichtlosen Spielstandes noch einmal alles. Und in der 80. Minute gelang tatsächlich noch eine Ergebniskorrektur. Henning nahm an der Strafraumgrenze einen Flachpaß von der rechten Seite direkt an und verwandelte zum 2:4. Am Ende nützte das ganze Aufbäumen aber nichts und es blieb beim 2:4. 
+
+Nach zwei Finalteilnahmen in Folge war dieses Jahr also im Halbfinale Endstation für Torpedo Eisen. Nach den Leistungen der Vorrunde konnte man aber kaum damit rechnen, daß Torpedo Eisen so weit kommen würde. Trotzdem war die Art und Weise des Ausscheidens doch sehr enttäuschend. In der völlig verschlafenen ersten Halbzeit hatte Torpedo Eisen dem druckvollen Spiel der Sprit Connection nichts entgegenzusetzen und ging daher völlig verdient als Verlierer vom Platz.
