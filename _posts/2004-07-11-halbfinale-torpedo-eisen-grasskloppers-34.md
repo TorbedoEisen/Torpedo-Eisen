@@ -1,0 +1,28 @@
+---
+ID: 563
+post_title: 'Halbfinale: Torpedo Eisen &#8211; Grasskloppers (3:4)'
+author: torpedophilip
+post_excerpt: ""
+layout: post
+permalink: >
+  http://fussball.torpedo-eisen.de/2004/07/11/halbfinale-torpedo-eisen-grasskloppers-34/
+published: true
+post_date: 2004-07-11 11:00:47
+---
+Nach dem tollen Sieg im Viertelfinale wartete nun im Halbfinale mit der Mannschaft von Graskloppers die nächste Herausforderung für Torpedo Eisen. Im Vergleich zur Vorwoche gab es zwei Änderungen im Kader: Gregor musste aufgrund einer Erkältung passen, der wieder genesene Philip kehrte zurück ins Team. Leider verletzte sich Thomas vor dem Spiel und konnte daher nur gehandicapt ins Spiel gehen. Ansonsten war man mit den mitgereisten Fans aus Jelmsdorf und Bremen und den Spielerfrauen guter Dinge, die Negativserie gegen Graskloppers endlich zu stoppen.
+
+Die ersten Minuten des Spiels tasteten sich beide Mannschaften verhalten ab. Es ergaben sich kleinere Chancen für Tommy, Björn und Philip, die aber nicht zwingend waren. Graskloppers spielte wie erwartet, kontrolliert und auf die Fehler des Gegners lauernd. Mit dieser Taktik hatten sie auch nach 12 Minuten Erfolg: nach einem missglückten Befreiungsversuch von Libero Stefan trudelte der Ball genau vor die Füße von Graskloppers Stürmer Markus, der mit viel Ruhe den Ball an Torpedos Torwart Markus vorbeilegte und zum 1:0 einschoss.
+
+Trotz des frühen Rückschlages, spielte Torpedo weiter beherzt nach vorne. Es ergaben sich eine Reihe von Ecken, aus denen die erste gute Torchance für Torpedo resultierte, als Christoph - der kleinste Spieler auf dem Platz (!) - per Kopfball nur die Latte traf. Von diesem Ereignis derart beflügelt, zielte er zwei Minuten später besser: Nach einer Ecke von Björn Verwirrung in der Graskloppers-Abwehr, der Ball konnte nicht geklärt werden und Schlitzohr Christoph mit links zum 1:1 Ausgleich (danach bedurfte es erstmal einer halben Stunde um den jubelnden Torschützen wieder einzufangen).
+
+Wer nun gedacht hatte, das Geschenkeverteilen auf beiden Seiten sei damit erledigt, sah sich getäuscht. Nach einer Ecke sieben Minuten vor Ende der ersten Halbzeit konnte Stürmer Karl im eigenen Strafraum den Ball nicht aus der Gefahrenzone befördern, und wieder einmal nutzte Graskloppers die individuelle Schwäche der Torpedos gnadenlos aus und ging erneut in Führung. Das war auch der Halbzeitstand in einem ausgeglichenen Spiel, wobei Graskloppers aufgrund seiner Abgezocktheit nicht unverdient 2:1 führte.
+
+Doch Torpedo gab sich noch nicht geschlagen und wollte in den verbleibenden 45 Minuten nochmal zurückschlagen. Gesagt getan: Kurz nach Beginn der zweiten Halbzeit verblüffte Thomas mit einem schnell ausgeführten Einwurf gleich mehrer Grasklopper, Philip nahm den Ball auf und jagte ihn aus 13m leicht abgefälscht in die Maschen. Ein schönes Tor und das richtige Startsignal für die Torpedos, das Spiel wieder rumzureißen.
+
+Angepeitscht von den nun entfesselten Torpedo-Fans spielte Eisen weiter nach vorne. Und es kam wie es kommen musste: in diese Drangphase hinein die Führung durch den eifrigen Björn, dessen Schuss von der Strafraumgrenze abgefälscht über den Torwart unhaltbar ins langen Eck segelte: 3:2! Torpedo hatte das Spiel gedreht. Nun lag es an den Graskloppers, wieder ins Spiel zurück zu gelangen. Sie versuchten es mit ihrer altbewährten Methode: hohe Bälle in den Strafraum. Doch dieses Mittel führte zunächst zu keinem Erfolg. Die Abwehr um Libero Stefan, Guido, Sebi und Kai ließ nicht viel anbrennen. Das Mittelfeld um "die Lunge" Sini, Thomas, Lutz, Sebi, Philip und David verrichteten ganze Arbeit und vorne lauerten Tommy und Björn auf ihre Konterchance. Es ergaben sich dann auch 2-3 gute Kontergelegenheiten für Eisen, die teilweise zu leichtfertig vergeben wurden. Pech hatte Tommy, als nach toller Vorarbeit von Björn sein Schuss nur Zentimeter am Posten vorbeistrich. In dieser Phase hätte Torpedo mit einem weiteren Treffer das Spiel entscheiden können. So sollte es dann doch ganz anders kommen.
+
+Doch Graskloppers gab sich noch nicht geschlagen. Nach einer umstrittenen Szene entschied der ansonsten souverän wirkende Schiri Rudolph in der 80. Minute auf Freistoß in Höhe der Eckfahne für Graskloppers. Den anschließenden Freistoß köpfte der bis dato nicht sonderlich in Erscheinung getretene Stürmer Andreas von Graskloppers trotz Bedrängnis durch Marc zum Ausgleich. Bei allem Ärger über den Ausgleich, Respekt vor der Leistung des mittlerweile ja auch nicht mehr ganz taufrischen Dino der Bunten-Liga.
+
+Damit war das Spiel wieder offen. Torpedo versuchte wieder, das Spiel an sich zu reißen, doch die Kräfte ließen nach. Zu allem Überfluss verletzten sich auch noch Tommy und Björn. Der endgültige K.O. dann drei Minuten vor Schluss, als nach einem zu kurz geklärten Abwehrversuch ein Mittelfeldspieler von Graskloppers mit einem Sonntagsschuss Torpedo aus allen Finalträumen riss.
+
+Eisen versuchte es noch einmal, aber es hat nicht sollen sein. In einem kämpferisch guten und spannenden Spiel bis zum Schluss zog die etwas glücklichere Mannschaft schließlich ins Finale. Ausschlaggebend für die Niederlage waren die individuellen Fehler im eigenem Strafraum und das "zu grün" sein der Torpedos.Eisen braucht sich aber nicht zu grämen. Die Mannschaft hat ein gutes Spiel gezeigt und sowieso - trotz des frühen unglücklichen Ausscheidens im Pokal - eine tolle Saison gespielt. Außerdem besteht am kommende Samstag zumindest noch die Möglichkeit im Spiel um Platz 3 gegen den ehemaligen Gruppengegner Lok Libuda Dritter der Bunten.Liga zu werden, und das wäre auch schon eine ehrenhafte Leistung.
