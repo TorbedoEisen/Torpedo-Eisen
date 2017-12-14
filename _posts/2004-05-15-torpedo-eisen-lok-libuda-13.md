@@ -1,0 +1,26 @@
+---
+ID: 571
+post_title: 'Torpedo Eisen &#8211; Lok Libuda (1:3)'
+author: torpedophilip
+post_excerpt: ""
+layout: post
+permalink: >
+  http://fussball.torpedo-eisen.de/2004/05/15/torpedo-eisen-lok-libuda-13/
+published: true
+post_date: 2004-05-15 11:00:04
+---
+Zwischen den bislang ungeschlagenen Teams von Torpedo Eisen und Lokomotive Libuda ging es nicht nur um drei wichtige Punkte hinsichtlich der Qualifizierung für das Viertelfinale, sondern auch um eine Vorentscheidung um den Gruppensieg. Daher galt es, alle verfügbaren Kräfte von Torpedo zu motivieren, was soweit ging, dass Spielertrainer Philip noch in der Nacht vor dem Spiel zwei seiner Schützlinge aus einem stadtbekannten Etablissement auslösen ließ, um in Bestbesetzung antreten zu können! Bis auf den verletzten Kai waren alle an Bord.
+
+Das Spiel begann wie erwartet: Lok spielte aus einer sehr ballsicheren Abwehr heraus und versuchte, über ihre beiden wuseligen Spielmacher das Spiel anzukurbeln. Daraus ergaben sich Feldvorteile für die Libudaner in den ersten 20 Minuten, die aber zunächst noch nicht zu zwingenden Torchancen führten.
+
+Zwischen der 20. bis 30. Minuten dann eine Drangperiode von Lok auf das Tor von Markus, wobei das ein oder andere Mal nur mit viel Glück ein Rückstand verhindert werden konnte. So auch in der 26. Minute, als Sebi den Ball für den schon geschlagenen Markus noch von der Linie kratzen konnte, es jedoch den Anschein hatte, als sei der Ball bereits mit vollem Umfang hinter der Linie gewesen. Torpedos Bemühungen, sich selber Torchancen zu erspielen, wurden meistens sofort im Keim erstickt. Eisens Stürmer waren zunächst völlig abgemeldet. Gerade als es so schien, dass Libuda sein Pulver verschossen hatte, dann doch die Führung: Über die völlig entblößte linke Seite von TE konnte ein Spieler von Lok ungehindert aus 20m abziehen, Torhüter Markus konnte diesen Schuss noch parieren, gegen den Abstauber war er aber machtlos. Libuda war verdient in Führung gegangen. Nach der Führung bemühte sich TE mehr nach vorne zu spielen. Kurz vor der Halbzeit die einzig echte Torchance für Eisen als Björn nach einem Querschläger von Karl aus 10m am Torwart von Lok scheiterte.
+
+Für die 2. Halbzeit hatte sich Torpedo vorgenommen, das Spiel ausgeglichener zu gestalten. Dies gelang auch ganz gut, Libuda besaß zwar weiterhin Feldvorteile, jedoch verteidigte TE zunächst aufmerksamer als in den ersten 45 Minuten. Dennoch lahmte das Spiel nach vorne, so dass es schon der Mithilfe von Lok bedurfte, um wieder ins Spiel zu gelangen: nach einem schönen Pass von Lutz auf David wusste sich der Libero von Libuda nur mit einem Handspiel im Strafraum zu behelfen. Schiri Vincent entschied sofort auf Elfmeter. Diese Chance ließ sich David nicht entgehen und verwandelte kompromisslos zum 1:1. Torpedo war wieder da.
+
+Dieses Tor schien zu beflügeln, zwischen der 60. und 70. Minute die stärkste Phase von TE. Fünf Minuten nach dem Ausgleich legte David nach kämpferischen Einsatz für Lutz auf, der aus 17m einen seiner gefürchteten Hammer auspackte. 95% aller Bunten-Liga Torhüter hätten angesichts Lutzi`s Gewaltakt wohl nur noch hinter sich greifen können, nicht aber Libuda`s "Katze", die mit den Fingerspitzen den Ball noch um den Torpfosten lenken konnte.
+
+Weitere 5 Minuten später war wieder der Torhüter von Lok im Blickpunkt und es folgte die vielleicht spielentscheidende Szene: Philip erahnte einen Querpass des Torhüters auf seinen Libero, spritzte dazwischen und hatte die Chance im Duell 1:1 gegen den Keeper die Führung zu erzielen. Doch der ansonsten so abgebrühte Schwede scheiterte an seinen Nerven - wieder einmal wenn es gegen Libuda ging - und schob den Ball am Tor vorbei. Dies hätte die Führung sein müssen und vielleicht sogar die (überraschende) Wende des Spielverlaufs.
+
+So aber blieb es beim 1:1 als Lok umstellte und den starken Klaus auf die linke Außenbahn beförderte, von wo er sich ein-zweimal gefährlich in Szene setzen konnte. So auch in der 80. Minute als er an der linken Außenbahn zwei Verteidiger von Torpedo stehen ließ und seine Flanke unglücklich von Stefans Schulter über Markus hinweg ins Tor segelte. Nur drei Minuten später baute der gleiche Spieler die Führung noch aus, als er mit einem schönen Heber aus allerdings abseitsverdächtiger Position Markus überwand. Damit war das Spiel entschieden, obwohl Torpedo noch zwei Chancen in Gestalt eines Drehschusses von Tommy und eines schönen Kopfballs von Marc nach Ecke Philip hatte. Am Ende konnte Torpedo jedoch auch froh sein, dass die Niederlage nicht höher ausfiel, da zweimal das Aluminium weitere Tore von Lok verhinderte.
+
+Insgesamt ein verdienter Sieg für Lok Libuda, die am diesen Tag in fast allen Mannschaftsteilen individuell besser besetzt waren und denen mit dieser Leistung der erste Platz in der Gruppe wohl nicht mehr zu nehmen sein dürfte. Für TE geht es nun darum, in den letzten beiden Spielen gegen Kellerkinder und Mülldeponie die noch benötigten Punkte einzufahren um somit das angestrebte Saisonziel, die Qualifizierung für das Viertelfinale, zu erreichen.
