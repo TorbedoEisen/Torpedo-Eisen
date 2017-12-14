@@ -1,0 +1,28 @@
+---
+ID: 569
+post_title: 'Torpedo Eisen &#8211; Independiente (3:2)'
+author: torpedophilip
+post_excerpt: ""
+layout: post
+permalink: >
+  http://fussball.torpedo-eisen.de/2004/05/02/torpedo-eisen-independiente-32/
+published: true
+post_date: 2004-05-02 15:00:24
+---
+Nach der etwas unglücklichen Niederlage im Pokal ging es für die Mannen von Torpedo nun darum, sich voll auf die Meisterschaft zu konzentrieren.
+
+Verstärkt wurde das Team durch Lutz Skywalker und dem nach einjähriger Abstinenz wieder einsatzbereiten Gregor. Die Anwesenheit Letzteren wurde als positives Omen gewertet, da jener im letzten Aufeinandertreffen gegen Independiente vor zwei Jahren den 2:1 Siegtreffer erzielte und damit die Niederlagenserie gegen den früheren Angstgegner beendete.
+
+Torpedo hatte umgestellt und für den kurzfristig krank gewordenen Karl stellte sich Spielertrainer Philip selbst in den Sturm. Diese Maßnahme wurde von manchen Torpedo-Spielern anfangs noch mit Schmunzeln vernommen, sollte sich später aber als genialer Schachzug des Trainerfuches erweisen!
+
+Torpedo begann sehr konzentriert. Schon nach 6 Minuten dann auch die Führung für Eisen: Sini hatte mit seiner unvergleichlichen Kämpfernatur den Ball im Mittelfeld erobert und zu Philip gepasst, der mit einen schönem Heber den über links startenden David einsetzte, welcher kurz vor der Grundlinie den Ball flach hereinbringen konnte, genau auf den heranstürmenden Tommy, der mit feiner Grätsche in Gerd-Müller-Manier den Ball zum 1:0 über die Linie drückte. Ein Auftakt nach Maß. Independiente, die bereits im Auftaktspiel gegen Libuda verloren hatten, stand unter Zugzwang. Angetrieben von dem in der ersten Halbzeit besten Independiente-Spieler (der ohne Namen auf dem Trikot) übernahmen die Latinos das Kommando auf dem Spielfeld, ohne sich jedoch zwingende Torchancen zu erarbeiten. So musste Torpedo in Gestalt von Torwart Markus - der im übrigen sonst fehlerfrei hielt - schon selber nachhelfen, als dieser sich bei einem Freistoß in der 31. Minute von rechter Position verschätzte und den Ball unbedrängt ins eigene Netz bugsierte und dadurch Independiente ausgleichen konnte. Torpedo war von diesem Lapsus geschockt und konnte zunächst nicht ins Spiel zurückfinden.
+
+Fünf Minuten später dann sogar die Führung von Independiente, als ein Stürmer im Strafraum geschickt den Ball gegen zwei Abwehrspieler abschirmte um dann auf einen Mitspieler zu passen, welcher aus 8m unhaltbar trocken einschießen konnte. Somit war die schöne Ausgangsbasis der Führung verspielt und Independiente verdient in Führung gegangen.
+
+Torpedo Eisen versuchte nun mehr nach vorne zu spielen, doch es entstanden zunächst keine zwingenden Aktionen. Kurios dann die folgenden Szene als Independiente-Spieler Ralf den Ball im 16er nach einem Zweikampf mit Philip mit der Hand spielte, aber zum Verdutzen aller Schiri Vincent nicht auf Elfmeter für Torpedo entschied, sondern auf Freistoß für Independiente! Wenig später dann aber eine knifflige Szene: kurz hinter der Mittellinie Zweikampf zwischen einem Independiente-Spieler und Gregor an der Außenlinie. Nachdem Gregor den Ball an seinem Gegenspieler vorbeilegen konnte, reklamierten Independiente-Spieler dass der Ball bereits die Außenlinie passiert hätte, aber der Ball schien nach den Beteiligten Torpedo-Spielern noch im Spiel. Gregor spielte dann einen Pass auf Philip, der den Ball an seinem Gegenspieler und den herauslaufenden Torwart von der Grundlinie parallel aus 12m herüberlupfen konnte und der Ball von der Torlatte dem völlig freistehenden Thommy vor die Füße fiel, der keine Mühe hatte, 4m zu versenken. Eisen war zurück im Spiel und hatten den psychologischen wichtigen Ausgleich kurz vor Halbzeit markiert.
+
+Nach der Halbzeit verflachte die muntere Partie der ersten Hälfte. Independiente blieb aber die spielbestimmende Mannschaft ohne sich jedoch nennenswerte Torchancen herauszuspielen. Eisen spielte abwartend, die wenigen Konter wurden viel zu hastig und unkontrolliert abgeschlossen. So hatten sich dann schon beide Mannschaften mit einem leistungsgerechtem Unentschieden abgefunden als sich die Prophezeiung von Spielertrainer Philip, er würde heute ein entscheidenes Tor schießen, erfüllte. Nach einem der wenig durchdachten Angriffe von Torpedo in der 2. Halbzeit scheiterte Thomas zunächst mit einem Schuss aus 20m, als Philip mit einem Diagonalpass David einsetzte, dessen Schuss jedoch zunächst vom Independiente-Torwart pariert werden konnte. Aber David, der nun auch das Kämpfen bei Torpedo gelernt hat, setzte dem Abpraller nach und hatte die Ruhe und das Auge auf den im Strafraum völlig freistehenden Philip zu flanken. Dieser nahm den Ball volley aus 7m und jagte ihn über den Torwart hinweg unter die Latte: 3:2! Eisen hatte das Spiel gedreht.
+
+Schließlich blieb es bei dem etwas glücklichem Sieg von Torpedo. Das Glück, was Torpedo letzte Woche im Pokal verlassen hatte, war zurückgekehrt. In einer kämpferisch guten, aber spielerisch doch schwachen Mannschaft von Torpedo ist die von Marc gut organisierte Abwehr um Guido, Boris, Sebi, Christoph und Stefan hervorzuheben und natürlich die stark verbesserte Chancenauswertung (fast 100%) der Stürmer. Torpedo`s Weg in der Champions League scheint weiter nach oben zu gehen, in zwei Wochen kommt es im Duell der bislang unbesiegten Mannschaften in der Gruppe gegen Lok Libuda zu einem echten Spitzenspiel.
+
+Besonderem Dank gebührt Werner und seiner Familie, die treusten der Treuen neben Manager 'DJ' Marc und den Spielerfrauen, die nach dem Spiel mit Bier und Grillfleisch aufwarteten und den gelungenen Sonntag Nachmittag für die Torpedos abrundeten.
