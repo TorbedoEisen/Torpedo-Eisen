@@ -1,0 +1,24 @@
+---
+ID: 575
+post_title: 'Torpedo Eisen &#8211; Mülldeponie (4:1)'
+author: torpedophilip
+post_excerpt: ""
+layout: post
+permalink: >
+  http://fussball.torpedo-eisen.de/2004/06/19/torpedo-eisen-muelldeponie-41/
+published: true
+post_date: 2004-06-19 11:00:47
+---
+In dem letzten Gruppenspiel ging es für beide Mannschaften um alles. Mülldeponie benötigte einen Sieg zum Weiterkommen, Eisen dagegen würde ein Unentschieden bereits reichen. Torpedo trat fast in Komplettbesetzung an, lediglich Lutz und Stefan fehlten. Aufgrund der jüngsten beachtlichen Ergebnisse von Mülldeponie gegen die Mitkonkurrenten Independiente und Lok Libuda war die Mannschaft um Spielertrainer Philip gewarnt. Dies sollte keine leichte Aufgabe werden. Dementsprechend defensiv ging Eisen zunächst zu Werke. In den ersten Minuten neutralisierten sich beide Mannschaften gegenseitig. Mit der ersten guten Aktion von Torpedo auch gleich die ersehnte Führung: Sini setzte sich in der 6. Minute mit seiner ihm typischen Dynamik auf der rechte Seite durch, von wo er aus eine hohe Flanke auf Höhe des zweiten Pfosten schlug. Björn konnte von da aus überlegt zu dem schon in der Mitte des Strafraums lauernden Marc köpfen, der ebenfalls per Kopf den Ball platziert über den Torwart hinweg in das Dreieck bugsierte. Ein schöner Treffer nach einer perfekten Kombination.
+
+Die Führung gab Eisen zusätzliche Sicherheit. Nur wenige Minuten später hätte Tommy bereits auf 2:0 erhöhen können, doch sein gut getimter Kopfball strich knapp am rechten Torpfosten vorbei. Mülldeponie besaß die beste Torchance in der ersten Halbzeit ebenfalls durch einen Kopfball, der über Torwart Markus hinweg am Pfosten vorbeistrich. Eisen dominierte das Spielgeschehen in der 1. Halbzeit und hätte durch Philip und Karl sogar noch höher in Führung gehen können.
+
+Nach der Halbzeit entwickelte sich zunächst ein anderes Bild. Mülldeponie, entschlossen das Spiel noch zu wenden, begann aggressiver und offensiver. Die Abwehr um Libero Philip und die Manndecker Kai, Sebi und Guido hatte Schwerstarbeit zu vollrichten. Die Angriffsbemühungen von Mülldeponie häuften sich, doch die Abwehr stand sicher. In die Drangphase von Mülldeponie hinein dann das schon vorentscheidende 2:0. Thomas hatte mit einem langen Flachpass mustergültig David bedient, der im Duell Eins-gegen-Eins dem Torwart von Mülldeponie keine Chance ließ. Nun hätte Mülldeponie schon drei Tore bedurft, um noch weiterzukommen.
+
+Der endgültige Genickschuss dann 5 Minuten später, als Philip den Ball aus der eigenen Hälfte nach vorne trieb und überlegt auf Höhe des Strafraums auf den mitgelaufenen David passte, der mit einem allerdings nicht unhaltbaren Flachschuss aus 10m auf 3:0 erhöhte. Damit war das Spiel gelaufen. Mülldeponie spielte dennoch weiter nach vorne und kam durch seine nicht ungefährlichen Stürmer zu 2-3 guten Torchancen. Deren Torschüsse konnte der gute Keeper Markus parieren oder sie strichen knapp am Tor vorbei.
+
+Da Mülldeponie nunmehr seine Abwehr aufgelöst hatte, kam Torpedo zunehmend zu vermehrten Torchancen. Björn und Karl konnten ihre gut herausgespielten Torchancen leider nicht verwerten. Dennoch sollte ein weiterer Treffer folgen: Nach einem Kopfball von Philip aus dem eigenem Strafraum auf David, krönte dieser seine starke Partie mit einem tollen 30m-Pass auf Thommy, der keine Mühe hatte den Ball aus 8m im Tor von Mülldeponie zu versenken. Angesichts dieser hohen Führung konnte es auch verschmerzt werden, dass kurze Zeit später Mülldeponie durch ein schönes Kopfballtor auf 1:4 verkürzen konnte. 5 Minuten vor Schluss gab es noch eine Rote Karte gegen einen Stürmer von Mülldeponie wegen Meckerns nach einem (berechtigterweise) nicht anerkannten Treffers aufgrund einer Abseitsstellung.
+
+In einem sehr fairen Spiel des jederzeit gut leitenden Schiris D. Winzen gewann Torpedo verdient mit 4:1 und zieht damit als Gruppenzweiter in das Viertelfinale ein. Nach dem unglücklichen Ausscheiden in der Hauptrunde im letzten Jahr ist dies der Lohn für eine bislang gute Saison. Dies war Grund genug, das Ereignis nach Spielende mit dem von Werner gesponserten Fässchen Kölsch und der Geburtstagskiste von Gregor ausgiebig zu feiern. Einziger Wehrmutstropfen war die Abwesenheit von Manager DJ. Dies ist wohl nur erklärbar, dass der Manager zur Zeit schon an dem Kader für die nächste Saison bastelt. Entschuldbar ist sein Nichterscheinen aber nur mit einer Kiste!
+
+Nach dem Erreichen des erklärten Saisonziels wird sich zeigen, ob dieses Jahr nicht sogar noch mehr drin ist. Der Gegner im Viertelfinale wird der Sieger aus Gruppe 4 sein, und voraussichtlich ein alter Bekannter: Sprit Connection. Gegen Sprit gab es vor zwei Jahren im Halbfinale eine deutliche Niederlage; mit einer ähnlich couragierten Leistung wie am Samstag braucht sich Torpedo jedoch vor keinem Gegner zu fürchten.
